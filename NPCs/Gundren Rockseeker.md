@@ -9,7 +9,7 @@ Class: Barbarian
 Age: Adult
 Challenge: CR 1
 Character-Role: Friend
-Condition: Dead
+Condition: Missing
 Appearance-Traits: Stylish
 Social-Traits: Bossy
 Mental-Traits: Ambitious

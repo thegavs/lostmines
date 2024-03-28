@@ -1,0 +1,1 @@
+The cottage of [[Thel Dendrar]] a wood worker murdered by the [[Redbrands]]

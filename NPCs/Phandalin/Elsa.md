@@ -1,0 +1,1 @@
+Barmaid in the [[Stonehill Inn]] gave the players information about the old adventure [[Daren Edermath]] who lives on the [[Edermath Ochard]]

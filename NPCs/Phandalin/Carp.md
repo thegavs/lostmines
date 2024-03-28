@@ -1,0 +1,1 @@
+Friend of the wood cutters son who gave the party the location of the secret tunnel under [[Tresendar Manor]]

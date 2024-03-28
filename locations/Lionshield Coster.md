@@ -1,0 +1,1 @@
+a modest trading post in [[Phandalin]] run by [[Linene Graywind]]  can buy potions etc here

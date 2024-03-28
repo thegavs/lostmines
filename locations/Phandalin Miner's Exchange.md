@@ -1,0 +1,1 @@
+A trading post where local miners have their finds weighed and bought run by [[Halia Thornton]]

@@ -1,0 +1,1 @@
+Location unknown [[Gundren Rockseeker]] believed to have been taken there.

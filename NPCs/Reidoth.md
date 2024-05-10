@@ -1,1 +1,1 @@
-The wizard in [[Thundertree]]
+The wizard in [[Thundertree]] visits regularly to gather "herbs"

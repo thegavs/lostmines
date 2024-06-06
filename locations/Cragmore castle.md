@@ -1,1 +1,1 @@
-Location unknown [[Gundren Rockseeker]] believed to have been taken there.
+ [[Gundren Rockseeker]] believed to have been taken there.  [[Reidoth]] gave the party the location of the castle.

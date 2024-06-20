@@ -1,2 +1,2 @@
 
-A mage controling the zombies at [[Old owl well]] tasked the party with ridding the area of orcs from 
+A mage controlling the zombies at [[Old owl well]] tasked the party with ridding the area of orcs.  Paid 350GP for 7 orc heads.   Was then killed by the party as they believed he was trying to dig up an army of undead.

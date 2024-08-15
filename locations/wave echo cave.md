@@ -1,0 +1,1 @@
+The location of the mine used to create magic objects that founded  [[Phandalin]]  lost for generations but found by [[Gundren Rockseeker]]

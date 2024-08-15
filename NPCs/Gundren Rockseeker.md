@@ -26,4 +26,4 @@ next:
   - Template - Group List
 RWtopicId: Topic_10
 ---
-A dwarf who employs the players and [[Sildar Haliwinter]] to escort him to [[Phandalin]].  Missing in action after being ambushed by Goblins.  The party have found his blood stained armour and long sword in [[Cragmore castle]], then later found him near death and captured but manged to rescue him.
+A dwarf who employs the players and [[Sildar Haliwinter]] to escort him to [[Phandalin]].  Missing in action after being ambushed by Goblins.  The party have found his blood stained armour and long sword in [[Cragmore castle]], then later found him near death and captured but manged to rescue him.  He lead the party to [[wave echo cave]] where he found the body of his captured brother.
